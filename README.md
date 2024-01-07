@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **rahatislamakash@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFj1pmjfng/bif7__63poKv25aLqSsVnA/edit?utm_content=DAFj1pmjfng&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFj1pmjfng/bif7__63poKv25aLqSsVnA/edit?utm_content=DAFj1pmjfng&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [https://www.canva.com/design/DAFj1pmjfng/bif7__63poKv25aLqSsVnA/edit?utm_content=DAFj1pmjfng&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://drive.google.com/file/d/1M5lVR5-dmnd9hCbj3RbMMPAYJsVn4MUd/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
